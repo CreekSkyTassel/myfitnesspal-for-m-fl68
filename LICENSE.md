@@ -1,4 +1,4 @@
-
+Enhance MyFitnessPal for macOS with professional MyFitnessPal for macOS Workflow | voice-coaching + custom-workouts, the #1 workflow. Includes voice-coaching and custom-workouts
 
 
 
